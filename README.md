@@ -1,1 +1,1 @@
-solutions 1 thru 5 copied over from samantha-old on 6/15/24
+all solutions mine - copied over from my defunct account syzygy789 on 6/15/24
